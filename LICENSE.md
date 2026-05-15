@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows new Extension: multi-cam-editing & color-correction is the best Shotcut for PC | Shotcut for Windows extension, featuring multi-cam-editing
 
 
 
